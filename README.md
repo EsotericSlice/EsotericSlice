@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EsotericSlice
-- 👀 I’m interested in ... crypto, NFTs, music, sustainability, ecology, and travel
+- 👀 I’m interested in crypto, NFTs, music, sustainability, ecology, and travel
 - 🌱 I’m currently learning more about the crypto market and stake pools
 - 📫 How to reach me ... support@divergentpathcompany.com
 
